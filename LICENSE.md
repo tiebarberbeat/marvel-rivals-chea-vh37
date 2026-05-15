@@ -1,4 +1,4 @@
-
+Novo Marvel Rivals traps mira WH é o melhor Marvel Rivals traps mira WH com morte instantânea e sem recuo. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
